@@ -2,7 +2,9 @@
 
 ## R W E Q E chill me
 
-### 嘟嘟嘟
+### 臭 弟 弟
+
+### 嘟 嘟 嘟
 <!--
 **RWEQE/RWEQE** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
